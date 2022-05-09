@@ -1,3 +1,3 @@
 - @alankarzovnikgrow, CEO at Grow Consulting, Recruiting firm along Latam.
 - Specialized in company expansion and landings, focused on high technical level professionals, and middle-top management.
-- alankarzovnik@growconsulting.com.ar, www.grwoconsulting.com.br
+- alankarzovnik@growgroup.us, www.grwoconsulting.com.br
