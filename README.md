@@ -1,4 +1,3 @@
-- @alankarzovnikgrow, CEO at Grow Consulting, Recruiting firm along Latam.
+- @alankarzovnikgrow, CEO at RecruBot, Recruiting firm along Latam.
 - Specialized in company expansion and landings, focused on high technical level professionals, and middle-top management.
-- alankarzovnik@growgroup.us, www.grwoconsulting.com.br
-Grow Group was born to encourage people to be their own purpose, connecting them with market opportunities and generating sustainable businesses. Founded in 2015, it is the first Brazilian multinational in the field of specialized recruitment and selection. We operate in Latin America focused on the development of personal careers, helping companies to have a connection that promotes the professional career of their talentsWe are an HRTECH with our own technology (RecrutBot) and we use artificial intelligence in our processes, which generates assertiveness and great speed in prioritizing people, using the GROW methodology. We develop and offer innovative, differentiated and personalized solutions that transform people and companies through the Let's Grow platform and the experience of Grow Consulting.
+- alankarzovnik@gmail.com
